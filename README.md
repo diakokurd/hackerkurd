@@ -1,0 +1,2 @@
+# hackerkurd
+Diakokurdhacker
